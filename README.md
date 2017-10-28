@@ -4,6 +4,11 @@ This is a repository USC Map-a-thons. Info, handouts, etc.
 
 
 ----------
+Do you want to do more to immediately help people affected by
+our recent natural disasters? Does the word 'Bruin' instantly ruin your day? 
+Interested in free food? If you answered yes to any of those questions, stop by
+Leavey Library for Battle of the Maps, a humanatarian map-a-thon event!
+
 ----------
 ----------
 ----------
